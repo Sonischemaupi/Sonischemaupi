@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning to make chrome extensions
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me. Don't
+- 📫 How to reach me. Just call me my phone number is 911
 - 😄 Pronouns: No
 - ⚡ Fun fact: I'm pretty young
 
